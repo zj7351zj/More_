@@ -1,2 +1,2 @@
 # More_
-知之为知之，不知为不知。
+The Longest Day Has An End.
